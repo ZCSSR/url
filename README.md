@@ -9,4 +9,12 @@
 请使用3：https://zcssr.ga<br>
 请使用4：https://zcssr.pro<br>
 
-各路朋友如需加入本站镜像链接！
+各路朋友请把此发布站加入收藏夹！
+
+已墙地址： QAQ
+https://zcssr.com<br>
+https://zcssr.me<br>
+https://zcssr.vip<br>
+https://zcssr.net<br>
+
+
