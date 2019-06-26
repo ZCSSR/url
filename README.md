@@ -1,4 +1,4 @@
-# ZCSSR.COM 新地址發佈頁
+# ZCSSR.COM 新地址发布页
 
 由于本站( https://www.zcssr.com )在部分地区受到干扰, 故此我们在此不定期更新我们的镜像站点。
 
