@@ -6,7 +6,7 @@
 更新於2019-07-26<br>
 请使用1：https://zcssr.live<br>
 请使用2：https://zcssr.icu<br>
-请使用3：https://zcssr.bast<br>
+请使用3：https://zcssr.best<br>
 
 各路朋友请把此发布站加入收藏夹！
 
