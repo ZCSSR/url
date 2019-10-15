@@ -3,8 +3,8 @@
 由于本站( zcssr.com )在部分地区受到干扰, 故此我们在此不定期更新我们的镜像站点。
 
 
-更新於2019-09-10<br>
-请使用1：https://zcssr.us<br>
+更新於2019-10-15<br>
+请使用1：https://zcssr.biz<br>
 请使用2：https://zcssr.club<br>
 
 
@@ -24,3 +24,4 @@ https://zcssr.live<br>
 https://zcssr.icu<br>
 https://zcssr.best<br>
 https://zcssr.cc<br>
+https://zcssr.us<br>
