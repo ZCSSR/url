@@ -4,7 +4,7 @@
 
 
 更新於2019-10-15<br>
-请使用1：https://zcssr.biz<br>
+请使用1：https://zcssr.fun<br>
 请使用2：https://zcssr.club<br>
 请使用3：https://zcssr.ws<br>
 
@@ -25,3 +25,4 @@ https://zcssr.icu<br>
 https://zcssr.best<br>
 https://zcssr.cc<br>
 https://zcssr.us<br>
+https://zcssr.biz<br>
