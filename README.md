@@ -14,7 +14,6 @@
 
 跳转地址：<br>
 https://zcssr.fun<br>
-https://zcssr.club<br>
 
 
 已墙地址： QAQ<br>
@@ -34,3 +33,4 @@ https://zcssr.us<br>
 https://zcssr.biz<br>
 https://zcssr.ws<br>
 https://zc2.pw<br>
+https://zcssr.club<br>
