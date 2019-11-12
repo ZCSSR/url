@@ -3,9 +3,9 @@
 由于本站( zcssr.com )在部分地区受到干扰, 故此我们在此不定期更新我们的镜像站点。
 
 
-更新於2019-11-06<br>
+更新於2019-11-12<br>
 请使用1：https://zc1.pw<br>
-请使用2：https://zc2.pw<br>
+请使用2：https://zc4.pw<br>
 请使用3：https://zc3.pw<br>
 
 
@@ -33,3 +33,4 @@ https://zcssr.cc<br>
 https://zcssr.us<br>
 https://zcssr.biz<br>
 https://zcssr.ws<br>
+https://zc2.pw<br>
