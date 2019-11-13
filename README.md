@@ -7,7 +7,8 @@
 请使用1：https://zc01.fun<br>
 请使用2：https://zc02.fun<br>
 
-
+永久域名(需翻墙）:
+请使用1：https://zcssr.com<br>
 各路朋友请把此发布站加入收藏夹！
 
 
