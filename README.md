@@ -4,8 +4,8 @@
 
 
 更新於2019-11-14<br>
-请使用1：https://zc03.fun<br>
-请使用2：https://zc04.fun<br>
+请使用1：https://zc05.fun<br>
+请使用2：https://zc06.fun<br>
 
 永久域名(需翻墙）:<br>
 请使用1：https://zcssr.com<br>
