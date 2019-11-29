@@ -3,9 +3,9 @@
 由于本站( zcssr.com )在部分地区受到干扰, 故此我们在此不定期更新我们的镜像站点。
 
 
-更新於2019-11-15<br>
-请使用1：https://zc14.fun<br>
-请使用2：https://zc15.fun<br>
+更新於2019-11-29<br>
+请使用1：https://zc18.fun<br>
+请使用2：https://zc19.fun<br>
 
 永久域名(需翻墙）:<br>
 请使用1：https://zcssr.com<br>
