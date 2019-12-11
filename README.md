@@ -4,11 +4,11 @@
 
 
 更新於2019-11-29<br>
-请使用1：https://zc26.fun<br>
+请使用1：zc27.fun<br>
 
 
 永久域名(需翻墙）:<br>
-请使用1：https://zcssr.com<br>
+请使用1：zcssr.com<br>
 各路朋友请把此发布站加入收藏夹！
 
 
