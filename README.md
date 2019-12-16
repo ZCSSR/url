@@ -4,8 +4,8 @@
 
 
 更新於2019-12-12<br>
-请使用：https://zc28.fun<br>
-请使用：https://zc29.fun<br>
+请使用：https://zc01.xyz<br>
+请使用：https://zc02.xyz<br>
 
 
 
