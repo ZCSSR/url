@@ -7,10 +7,10 @@
 <br>
 更新於2019-01-03<br>
 <br>
-请使用：https://zc12.xyz<br>
+https://zc12.xyz<br>
        <br>
-       https://zc13.xyz<br>
+https://zc13.xyz<br>
        <br>
-       https://zc14.xyz<br>
+https://zc14.xyz<br>
        <br>
 
