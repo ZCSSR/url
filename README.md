@@ -1,4 +1,4 @@
-# ZCSSR.COM 新地址发布页<br>
+# 新地址发布页<br>
 永久官网：https://zcssr.com<br>
 <br>
 各路朋友请把此发布站加入收藏夹！<br>
