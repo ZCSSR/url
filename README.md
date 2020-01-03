@@ -1,18 +1,16 @@
-# ZCSSR.COM 新地址发布页
-
-由于本站( zcssr.com )在部分地区受到干扰, 故此我们在此不定期更新我们的镜像站点。
-
-
-更新於2019-12-12<br>
+# ZCSSR.COM 新地址发布页<br>
+永久官网：https://zcssr.com<br>
+<br>
+各路朋友请把此发布站加入收藏夹！<br>
+<br>
+备用：<br>
+<br>
+更新於2019-01-03<br>
+<br>
 请使用：https://zc12.xyz<br>
-              #zc13.xyz<br>
-              #zc14.xyz<br>
-                 
-
-
-永久域名:<br>
-请使用1：https://zcssr.com<br>
-各路朋友请把此发布站加入收藏夹！
-
-
+       <br>
+       https://zc13.xyz<br>
+       <br>
+       https://zc14.xyz<br>
+       <br>
 
